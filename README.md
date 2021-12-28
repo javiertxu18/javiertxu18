@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @javiertxu18
-- 👀 I’m interested in too many things :)
+- 👀 I’m interested in too many things, all of them related with IT :)
 - 🌱 I’m currently learning Big Data
 - 📫 How to reach me: javierherreroprieto@gmail.com
 
